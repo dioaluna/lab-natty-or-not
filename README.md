@@ -1,4 +1,4 @@
-Roteiro Simples: “Como a IA Está Transformando a Publicidade 🎥”
+“Como a IA Está Transformando a Publicidade 🎥”
 
 📒 Descrição:
 Um vídeo curto e direto de 1 minuto, explicando como a Inteligência Artificial simplifica e transforma o mundo da publicidade de forma acessível e rápida.
