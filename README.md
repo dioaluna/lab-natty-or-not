@@ -25,7 +25,7 @@ O vídeo, com animações leves e narração envolvente, destaca os principais p
 Mensagem Final:
 "Com a IA, a publicidade não só evolui – ela se torna mais inteligente e conectada com você."
 
-🔗 LINK PARA O VÍDEO AQUI
+🔗 LINK PARA O VÍDEO AQUI**https://www.tiktok.com/@neveneve62/video/7449276755656985861**
 
 💭 Reflexão:
 Foi um processo rápido e direto, mostrando como as IAs podem ser usadas para simplificar a criação de conteúdo visual e informativo.
